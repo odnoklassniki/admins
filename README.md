@@ -42,8 +42,4 @@
 
 Приходите к нам и будем дополнять список вместе!
 
-**CV:** Kristina Milgrave: [kristine.milgrave@vk.team](mailto:kristine.milgrave@vk.team)
-
-**CV:** Gania Satieva: [@gsatieva](https://t.me/gsatieva)
-
-**Вопросы:** Ivan Buymov [@byumov](https://t.me/byumov)
+**Вопросы** & **CV**: Ivan Buymov [@byumov](https://t.me/byumov)
